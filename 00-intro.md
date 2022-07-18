@@ -15,4 +15,4 @@ I tak są na tym świecie rzeczy istniejące nieidealnie oraz te idealnie nieist
 I z natury swojej jedne z zazdrością spoglądają na te drugie. 
 Istniejący zazdroszczą słowom perfekcji. 
 
-Słowa natomiast wbrew wszelkiej logice zazdrosne są o największą wadę tych drugich. Ponieważ największą tragedią Boga jest to, że nie istnieje.
+Słowa natomiast wbrew wszelkiej logice zazdrosne są o największą wadę tych drugich. Ponieważ tragedią Boga jest to, że nie istnieje.
