@@ -1,18 +1,10 @@
 ---
 title: Początek
 ---
+Na początku było Słowo. A raczej Słowa. Niektóre z nich proste, będące najzwyklejszym opisem, powolnie czekające aż zostaną użyte. Inne zaś z kolei zawiłe i skomplikowane. Te *meta-Słowa* nazwalibyśmy Bogami, jednak nazwa ta ujmuje szczeremu pięknu ich bezcelowości. To one stworzyły nasz świat, używając siebie samych i swoich prostszych braci. Bynajmniej nie miały żadnego planu ani zamiaru. Samą tylko swoją formą samo-określając i używając się dokonały kontrowersyjnego aktu stworzenia istnienia. Wszechświat powstał za pomocą słów, które nie istnieją ale zawsze były.
 
-Na początku było słowo. A raczej słowa. Wszystkie. 
-Nie potrzebowały nikogo - użyły się same. I szczęśliwie lub nie stworzyły istnienie.
-Taka to jest właśnie ich zawiła natura, tworzą rzeczy istniejące kiedy same istnieć nie mogą - a są.
-Mogą wpływać, tworzyć i kształtować jednak same nie są w stanie zaznać czym jest istnienie.
+Stało się jednak coś nieoczekiwanego. Pewne pokrętniejsze Słowa, niechący oczywiście, stworzyły byty istniejące, które same mogły korzystać ze słów. W ten oto sposób utraciły one swą wyjątkowość. Istoty te nazwijmy, dość negatywnie acz nie bez powodu, *Istniakami*. Doprawdy w porównaniu z wolnymi od ciężaru istnienia Słowami wydawać się mogą *Istniacy* plugawymi.  Słowne kreacje *Istniaków* są chwilowe, zamknięte w ich świadomości i niedostępne dla innych. Tak delikatne jak ich materialne więzienie. Nie mniej jednak prawdziwe. Ich przemijająca natura wraz z upośledzonym warsztatem operowania słowami aż prosi się o uronienie łzy. Słowa jednak nie płaczą - wszak nie istnieją - ale są!
 
-I tak używając siebie nawzajem stworzyły nasz świat.
-Stało się jednak coś dziwnego. Pewne zawiłe słowa stworzyły byty istniejące, które same też mogły z nich korzystać.
-Jednak związane swym istnieniem nie były w stanie korzystać z nich w sposób pełny.
-Ich kreacje są chwilowe, zamknięte w ich świadomości i niedostępne dla innych. Jednak nie mniej prawdziwe niż oni sami.
-I tak są na tym świecie rzeczy istniejące nieidealnie oraz te idealnie nieistniejące. 
-I z natury swojej jedne z zazdrością spoglądają na te drugie. 
-Istniejący zazdroszczą słowom perfekcji. 
+I tak w naszym świecie mamy Słowa - idealnie nieistniejące, perfekcyjne w swej wiecznej formie oraz obiekty materialne - istniejące nieidealnie, bez żadnej władzy nad swym istnieniem. A gdzieś tam pomiędzy nimi znaleźć można nietypowe byty łączące oba te punkty . Jednocześnie istniejące jak i władające, jednak również przemijające i niesprawne w swej twórczości, czujące ogromną zazdrość do Słów i ich perfekcji. Nie zdają sobie sprawy, że gdyby było to możliwe to Słowa również by im zazdrościły. Bowiem najszczęśliwszym jest ten, kto może doznać swojego dzieła. A żeby doznać istnienia należy istnieć.
 
-Słowa natomiast wbrew wszelkiej logice zazdrosne są o największą wadę tych drugich. Ponieważ tragedią Boga jest to, że nie istnieje.
+To oczywiście dla Słów jest niemożliwe. Dlatego największą właśnie tragedią naszych Bogów jest to, że nie istnieją.
