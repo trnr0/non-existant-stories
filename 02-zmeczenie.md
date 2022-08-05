@@ -1,0 +1,1 @@
+Czuje się kurewsko zmęczony. I mam wrażenie, że większość ludzi również zaczyna się tak czuć. Do już i tak wyczerpujących obowiązków życia, nasi burżuazyjni właściciele dorzucili nam ciągły wymóg filtrowania mediów, którymi jesteśmy non-stop bombardowani.
